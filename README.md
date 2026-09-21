@@ -239,4 +239,4 @@ Legend of Mushroom is offered as a complete free version, with all features and 
 Don't miss out on the fun! Download Legend of Mushroom today and join the adventure!
 
 ---
-**Last updated:** 2026-09-21 06:04:15 UTC
+**Last updated:** 2026-09-21 13:50:28 UTC
